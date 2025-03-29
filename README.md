@@ -21,5 +21,5 @@
 5. [دراسات حالة](#دراسات-حالة)  
 
 ## **تواصل معي**  
-- [لينكيد إن]((https://www.linkedin.com/in/hussen-aldhb-1133b6321/))  
+- [لينكيد إن](https://www.linkedin.com/in/hussen-aldhb-1133b6321/)  
 - البريد:hussenaldhb1@gmail.com 
